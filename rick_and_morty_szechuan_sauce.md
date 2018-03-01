@@ -27,7 +27,7 @@
  - A few tbs of plum sake
  - Sriracha sauce
  - 4 tbs of brown sugar
- - Gresh ginger
+ - Fresh ginger
  - Chili paste (if you’re looking for heat)
 
  - Sweat some garlic and oil until fragrant.
